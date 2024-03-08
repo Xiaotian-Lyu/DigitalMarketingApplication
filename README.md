@@ -1,1 +1,5 @@
 ![截屏2024-03-08 15 36 38](https://github.com/Xiaotian-Lyu/DigitalMarketingApplication/assets/145813098/b5f3c4a6-6442-4b16-a47f-537cf1eb0f64)
+![截屏2024-03-08 15 37 20](https://github.com/Xiaotian-Lyu/DigitalMarketingApplication/assets/145813098/d7612ae9-5664-41a5-b193-2a839a4e4496)
+![截屏2024-03-08 15 37 34](https://github.com/Xiaotian-Lyu/DigitalMarketingApplication/assets/145813098/82f2d41b-0426-4d96-a4e4-6a99887391d2)
+![截屏2024-03-08 15 37 48](https://github.com/Xiaotian-Lyu/DigitalMarketingApplication/assets/145813098/fd634da5-db9d-4c20-9aef-912ad3d80205)
+![截屏2024-03-08 15 37 59](https://github.com/Xiaotian-Lyu/DigitalMarketingApplication/assets/145813098/23c0be4a-0456-43ee-98b2-cac3583319a1)
